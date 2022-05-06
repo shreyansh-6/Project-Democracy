@@ -7,3 +7,5 @@ Pakistan is not A GOOD COUNTRY.
 india is best
 
 india has culture
+
+there are total 193 countires.
